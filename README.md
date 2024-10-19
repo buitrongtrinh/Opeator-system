@@ -1,1 +1,0 @@
-# Opeator-system
